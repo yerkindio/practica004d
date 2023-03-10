@@ -1,1 +1,0 @@
-# practica004d
